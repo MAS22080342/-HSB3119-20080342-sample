@@ -21,6 +21,12 @@ I remember when I was traveling to the ruins of the Emperor, there was a stone t
 
 
 
+A NEW BLACK KING HAVE ARRIVED IN VIETNAM
+
+
+
+
+
 
 
 Một vị Vua da màu! Ngài Speed Nguyen, tên tự là Mai Ninh Gà (Tomorrow Stew Chicken) chụp ảnh lưu niệm trong chuyến công du tới Đại Việt ta.
@@ -28,6 +34,9 @@ A Black King! Mr. Speed ​​Nguyen, whose real name is Mai Ninh Ga (Tomorrow S
 
 
 
+
+
+![](images/459815904_1060515549415368_8327911225080760474_n.jpg)
 
 
 
