@@ -1,7 +1,7 @@
 # POWER OF FRIENSHIP ඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞ
 
 Nhớ hồi phiêu lịch di chỉ tàn đế tại hạ có qua 1 phiến đá mạn thấy ghi vài dòng rằng "vào đầu thời tạo hóa dân chúng còn chưa biết đến linh khí vị diện, tuổi thọ ngắn ngủi, không thể chống lại tự nhiên, bỗng từ đâu có một kẻ thân mang dòng máu khổng tước và phượng hoàng cao quý, ngài thấy chúng sinh lầm than mà mềm lòng không kìm được, ngài bèn dùng công pháp của mình hóa những cánh gà bình thường thành cánh tước cánh phượng có pháp lực vô biên và ẩn chứa 1 tia nguyên khí thần của ngài để ban phát với mong muốn cứ khổ cứu nạn phổ độ chúng sinh. Người đời ăn được cánh gà của ngài bỗng linh khí nhập thể, giải khai thiên nhãn, mở ra đan điền, khiến người thường cũng có thể ngự không chi pháp, chưởng khống không gian và tuổi thọ tăng vọt. Ngay cả vị đế kia cũng nói rằng để có pháp lực như hôm nay hắn cũng đã ăn qua cánh gà của ngài".
-
+![](images/461437661_1071306125002977_8730332120168651098_n.jpg)
 
 
 
