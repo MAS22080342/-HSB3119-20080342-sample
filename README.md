@@ -36,7 +36,22 @@ A Black King! Mr. Speed ​​Nguyen, whose real name is Mai Ninh Ga (Tomorrow S
 
 
 
-![](images/459815904_1060515549415368_8327911225080760474_n.jpg)
+
+AUTHOR 
+
+
+
+
+
+![](images/461661059_1465651604137974_5999703299496419368_n.jpg)
+
+
+
+
+
+
+
+ONE OF MY FRIEND 
 
 
 
