@@ -14,3 +14,20 @@ Nhớ hồi phiêu lịch di chỉ tàn đế tại hạ có qua 1 phiến đá 
 
 
 I remember when I was traveling to the ruins of the Emperor, there was a stone tablet on the side that said a few lines that "at the beginning of creation, people did not yet know about the aura of the plane, their lifespan was short, they could not fight against nature. Suddenly, out of nowhere, there was a person with the blood of a noble king and phoenix. He saw sentient beings suffering and couldn't help but soften his heart. He used his technique to turn ordinary chicken wings into phoenix wings. His magical power is boundless and contains a ray of divine energy to give with the desire to save all living beings from suffering and suffering. People who eat his chicken wings suddenly have spiritual energy incarnated, releasing their heavenly eyes and opening up Dantian, allowing ordinary people to be able to control the sky, control space and increase their lifespan. Even that emperor said that to have the magic power like today, he had to eat your chicken wings."
+
+
+
+
+
+
+
+
+
+Một vị Vua da màu! Ngài Speed Nguyen, tên tự là Mai Ninh Gà (Tomorrow Stew Chicken) chụp ảnh lưu niệm trong chuyến công du tới Đại Việt ta.
+A Black King! Mr. Speed ​​Nguyen, whose real name is Mai Ninh Ga (Tomorrow Stew Chicken), took souvenir photos during his trip to Dai Viet.
+
+
+
+
+
+
